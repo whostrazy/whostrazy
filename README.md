@@ -2,7 +2,7 @@
 - 👀 I’m interested in phones
 - 🌱 I’m currently learning ???
 - 💞️ I’m looking to collaborate on ???
-- 📫 How to reach me: tg:@jettonfarmer discord:strazy1221
+- 📫 How to reach me: tg:@whostrazy discord:strazy1221
 - 😄 Pronouns: pokofonchek
 - ⚡ Fun fact: svetyashke
 
